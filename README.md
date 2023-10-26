@@ -3,3 +3,6 @@
 
 ## 上課網址
 https://meet.google.com/bio-haps-bpr
+
+## 2023_10_14早上
+[錄影](https://youtube.com/live/YWTf5MMuTlY)
